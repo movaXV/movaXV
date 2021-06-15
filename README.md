@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @movaXV
+- 👀 I’m interested in minecraft
+- 🌱 I’m currently learning python
+- 📫 How to reach me movaXV#0001 on discord
